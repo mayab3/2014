@@ -1,4 +1,7 @@
 2014
 ====
 Read Me or Not
-2014
+This is just a 
++rambling of my coherent and incoherent thoughts as I am sitting here and listening to the Lecture
++bullet
++points
